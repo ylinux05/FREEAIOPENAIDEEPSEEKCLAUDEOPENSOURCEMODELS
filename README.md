@@ -1,0 +1,1 @@
+check https://darkcyan-termite-814950.hostingersite.com/ for deepseek and MAKE SURE TO CHECK OUT - www.chataiopensource.com for opensource models and also www.snow-narwhal-959082.hostingersite.com for unlimited openai models and https://mediumseagreen-dunlin-740245.hostingersite.com/ for unlimited claude by anthropic models
